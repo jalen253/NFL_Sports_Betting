@@ -1,6 +1,6 @@
 
 
-![losing%20money.jpg](attachment:losing%20money.jpg)
+![losing%20money.jpg](attachment:losing%20money.jpg) additional
 
 
 
